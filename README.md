@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Pranav Totala
 - 👀 I’m interested in coding and making short fun projects
-- 🌱 I’m currently creating a whole school managing portal for online teaching
+- 🌱 I’m currently creating a whole school managing portal for online teaching, and working at Shadowfax- full time
 - 💞️ I’m looking to collaborate on any fun thing, just i am working so will consider part time only.
 - 📫 How to reach me -- https://www.linkedin.com/in/p-totala/
 
